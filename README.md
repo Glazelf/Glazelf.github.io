@@ -1,1 +1,1 @@
-# NightSky
+# GitHub pages :3
